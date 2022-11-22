@@ -1,1 +1,1 @@
-It's a good day
+It's a good day to work hard
