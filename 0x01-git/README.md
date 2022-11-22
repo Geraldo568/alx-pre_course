@@ -1,1 +1,1 @@
-”My second readme"
+It's a good day
