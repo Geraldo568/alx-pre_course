@@ -1,1 +1,1 @@
-It's cool to do something today
+It's a cool day
